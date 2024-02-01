@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Jihad
+- 👀 I’m interested in learning 
+- 🌱 I’m currently learning coding,editing 
+- 💞️ I’m looking to collaborate on GitHub 
+- 📫 How to reach me Instagram:@not_jihad
+- 😄 Pronouns:He
+- ⚡ Fun facts:💫 idk
